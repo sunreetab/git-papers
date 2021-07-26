@@ -1,4 +1,4 @@
-The world is intricate and delicate
+The world is intricate and extricate
 By sunreeta
 paper
 This is the second change
